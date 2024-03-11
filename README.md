@@ -11,7 +11,7 @@ My name is Alissa Oliveira, and I'm an IT student, set to graduate in May 2024. 
 
 ## Get in Touch
 
-Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/alissa-oliveira).
+Feel free to reach out to me via [LinkedIn](https://www.linkedin.com/in/oliveiraalissa/).
 
 
 ## Fun Fact
